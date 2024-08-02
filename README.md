@@ -2,5 +2,6 @@
 
 Sou Maria Vitória
 
-Estou estudando no alura
+Estou studyng no alura 📖
 
+@viicardoso0
